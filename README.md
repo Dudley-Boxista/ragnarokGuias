@@ -33,6 +33,10 @@
 
 ## Musa/Trovador
 
+### Texto
+
+* [A Magia Musical - Catleya](https://docs.google.com/document/d/19quaRDmKHY0L7Dn70-nk4jCC-Lo7fPTrXdjFgJcRNVE/edit?tab=t.0)
+
 ## Superaprendiz
 
 ### Texto
