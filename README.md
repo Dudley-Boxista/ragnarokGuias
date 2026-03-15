@@ -5,6 +5,10 @@
 
 ## Guardião Real
 
+### Texto
+
+* [Guia torto de Guardião Real de Lança do Destino - Pauloh](https://docs.google.com/document/d/1nKnYx774nOjPF7VmDqKUes9F9_B_3cIfw8m_9OhiCNE/edit?tab=t.0#heading=h.haaid6kjci30)
+
 ## Arcano
 
 ## Feiticeiro
