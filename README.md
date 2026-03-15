@@ -23,6 +23,10 @@
 
 ## Mecânico
 
+### Texto
+
+* [Guia de Mecânico Fúria do Furacão (LATAM RO) - ???](https://docs.google.com/document/d/1zmDBYeyGbxFfipOprXufB17gVu1UdTvPYCrSTopB3Xo/edit?tab=t.0)
+
 ## Bioquímico
 
 ## Arcebispo
