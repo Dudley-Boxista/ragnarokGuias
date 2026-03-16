@@ -9,6 +9,8 @@
 
 * [Guia torto de Guardião Real de Lança do Destino - Pauloh](https://docs.google.com/document/d/1nKnYx774nOjPF7VmDqKUes9F9_B_3cIfw8m_9OhiCNE/edit?tab=t.0#heading=h.haaid6kjci30)
 
+* [RG Luz da Criação (Genesis Ray) - Rebase](https://docs.google.com/document/d/1aWvYmv7Tj6jXzVXj-yJu31DwRmSrBlQhv7d1KOcLs3g/edit?tab=t.0#heading=h.cney9uouq9u2)
+
 ## Arcano
 
 ## Feiticeiro
